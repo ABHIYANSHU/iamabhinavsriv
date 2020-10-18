@@ -1,2 +1,0 @@
-# Abhinav Srivastava
-My Profile
